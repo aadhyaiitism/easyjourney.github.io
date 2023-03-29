@@ -1,0 +1,1 @@
+# easyjourney.github.io
